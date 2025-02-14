@@ -1,4 +1,4 @@
-Create,Edit,Earn-Your-Video-Editing-Career-Starts-Here!
+Create, Edit, Earn-Your-Video-Editing-Career-Starts-Here!
 
 **[Apply Now](https://sites.google.com/view/create-edit-earn-your-video-ed/home)**
 
